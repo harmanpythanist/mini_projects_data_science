@@ -1,3 +1,1 @@
-:)
-
-hi champion
+Hey Champ
